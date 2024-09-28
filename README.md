@@ -2,7 +2,7 @@
 - 👀 I’m interested in CPP/JAVA/PYTHON
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ___2707479834___
+- 📫 How to reach me: yum1era@outlook.com
 - 😄 Pronouns: Hex_____
 - ⚡ Fun fact: I'm a mad skidder! :D
 
